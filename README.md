@@ -1,0 +1,1 @@
+# SeminaAji_ssAssignment
